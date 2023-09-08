@@ -5,5 +5,4 @@
 
 **Bitfate** is Connecting ✨ _People_ ✨ With Real Money. A blockchain project dedicated to fast, intelligent, and transparent decentralized services, accessible by everyone..
 
-Here are some ideas to get you started:
 
