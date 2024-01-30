@@ -3,6 +3,6 @@
 
 ### Hi there 👋
 
-**Bitfate** is Connecting ✨ _People_ ✨ With Real Money. A blockchain project dedicated to fast, intelligent, and transparent decentralized services, accessible by everyone..
+**Bitfate** Connecting People With Real Money. A #Blockchain project Bringing #Bitcoin Beyond Chains & Humans #AI & #BRC20 services accessible to everyone.
 
 
